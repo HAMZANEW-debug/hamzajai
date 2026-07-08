@@ -1,2 +1,0 @@
-# hamzajai
-hamaza jai
